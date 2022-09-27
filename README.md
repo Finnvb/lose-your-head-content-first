@@ -1,1 +1,1 @@
-Zie de wiki voor de content-analyse
+Zie de wiki voor de contentanalyse.
